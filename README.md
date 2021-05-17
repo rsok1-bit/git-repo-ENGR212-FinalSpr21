@@ -3,4 +3,6 @@ Names and Animals
 
 1. Aaron Schlichting - Golden Eagle
 2. Byron Chand - Penguin
-3. Josh Li - Cat
+3. Feras Alayoub - German Shepard
+4. Josh Li - Cat
+
